@@ -1,2 +1,2 @@
 # ValoracionCondicionFisica
-<a href="https://docs.google.com/document/d/1qjP-6iTVKjK5ZSDhJZ18CmQQ2H79gbYhqgGv9h22yXk/edit?usp=sharing">Prueba</a>
+<a href="https://docs.google.com/presentation/d/1JgGGJgnBY_vbSv_2W8kEgXKdHEFuhktSMQF2RnNeK-4/edit">Trabajo Valoración Física -- 28/09/2026</a>
